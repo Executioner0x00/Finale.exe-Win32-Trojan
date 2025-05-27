@@ -1,2 +1,2 @@
 # Finale.exe-Win32-Trojan
-Pass for you simps is "diddyclatureissohot"
+Now without a password! Enjoy!!!
